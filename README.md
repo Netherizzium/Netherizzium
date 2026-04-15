@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I'm Yash!<br>I make stuff sometimes<br>~~I'm currently working on a [game](https://whataboutstudios.com) with some friends~~(Paused now but not abandoned
+Hi I'm Yash!<br>I make stuff sometimes<br>~~I'm currently working on a [game](https://whataboutstudios.com) with some friends~~(Paused now but not abandoned)
 
 
 ## 🌐 Socials:
